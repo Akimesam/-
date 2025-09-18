@@ -6,9 +6,7 @@
 </p>
 
 <p align="center">
-  <a href="https://postimg.cc/k22XsX2X">
-    <img src="https://i.postimg.cc/YC3Gpvkg/Polish-20250918-124716761.jpg" alt="Gyuu Bot" style="max-width:100%;" />
-  </a>
+  <img src="AQUÍ" alt="Gyuu Bot con estrellitas" style="max-width:100%;" />
 </p>
 
 <p align="center">
