@@ -1,5 +1,5 @@
-# Gyuu Tomioka 
-𝚄𝙽 𝙱𝙾𝚃 𝚂𝙴𝙽𝚂𝙸𝙻𝙻𝙾
+# 𝘎𝘠𝘔 𝘛𝘖𝘔𝘐𝘖𝘒𝘈 𝘉𝘖𝘛 
+© Power By Kime & Nino
 
 
 <p align="center">
